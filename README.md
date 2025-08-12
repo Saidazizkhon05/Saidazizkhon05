@@ -10,6 +10,6 @@
 
 - 💬 Ask me about **Flutter, Dart**
 
-- 📫 How to reach me **http://myurls.co/abdurauf_halimboyev**
+- 📫 How to reach me **saidazizxon05@gmail.com**
 
 - ⚡ Fun fact **My birthday on 31.07.2005**
